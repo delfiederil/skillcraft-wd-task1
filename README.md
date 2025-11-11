@@ -1,1 +1,0 @@
-# skillcraft-wd-task1
